@@ -4,6 +4,7 @@ SkILLS:
 Ms OFFICE 
 Communication 
 MS Excel
+Ms PowerPoint 
 Problem solving skills 
 CONTACT:
 un1958391@gmail.com
